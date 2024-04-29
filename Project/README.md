@@ -1,1 +1,0 @@
-# KIITPATHSHALA Edtech Project
